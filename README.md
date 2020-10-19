@@ -1,1 +1,1 @@
-# :computer: [GO TO WEB VIEW](OMGitsxupi.github.io)
+# :computer: [GO TO WEB VIEW](https://omgitsxupi.github.io/)
